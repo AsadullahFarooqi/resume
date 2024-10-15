@@ -1,1 +1,1 @@
-# Asadullah Farooqi Updated resume, 25 JAN 2022
+# Asadullah Farooqi Updated resume, 15 OCT 2024
